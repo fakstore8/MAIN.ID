@@ -1,2 +1,0 @@
-# MAIN.ID
-Fakhri Berkreasi
